@@ -1,1 +1,0 @@
-# denkuzin.github.io
